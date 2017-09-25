@@ -1,4 +1,4 @@
-# [Through the Eyes of a Survivor](zixindh.github.io/testtttt)
+# [Through the Eyes of a Survivor](https://zixindh.github.io/testtttt/)
 
 > Understanding the epidemic of sexual assault on American college campuses
 
